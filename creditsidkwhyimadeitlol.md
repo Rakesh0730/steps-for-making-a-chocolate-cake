@@ -1,0 +1,2 @@
+title says it all.
+i copied the recipes and ingredients from a website in google, called "foodnetwork.com". so that's why it's too  essay"ish" to make a basic chocolate cake. anyways, here's the credit: https://www.foodnetwork.com/recipes/food-network-kitchen/basic-chocolate-cake-recipe-2120876 . no need to copy it. just ctrl+click. :)
